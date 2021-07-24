@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Zakia-Alfatikhul-Aziz
 
-Teach me!
+Ajari saya_
 
 Terima kasih_
 

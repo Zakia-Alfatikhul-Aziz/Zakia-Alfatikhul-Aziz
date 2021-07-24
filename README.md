@@ -1,8 +1,10 @@
-- 👋 Hi, I’m @Zakia-Alfatikhul-Aziz
+* 👋 Hi Assalamu'alaikum
 
-Ajari saya_
+* Saya @Zakia-Alfatikhul-Aziz
 
-Terima kasih_
+* Senang bertemu dengan anda
+
+* Terima kasih
 
 <!---
 Zakia-Alfatikhul-Aziz/Zakia-Alfatikhul-Aziz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
